@@ -1,4 +1,4 @@
-# cult--never-think-about-work
+# cult-never-think-about-work
 A Work Cult.
 
 1. never think about work
