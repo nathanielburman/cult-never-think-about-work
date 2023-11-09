@@ -7,3 +7,4 @@ A Work Cult.
 
 this is the source of this cult.
 
+any thoughts about work while you are working are never considered work and are actually considered nonwork thoughts and considered to be not working durring work periods of time.
